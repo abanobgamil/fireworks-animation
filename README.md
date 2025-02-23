@@ -1,3 +1,3 @@
 # fireworks_animation
 
-![Image](https://github.com/user-attachments/assets/8da91cad-6ed1-48fc-9104-33c229893195)
+![Image](https://github.com/user-attachments/assets/47fc4c5c-8c30-4136-b3aa-98f5c976e659)
